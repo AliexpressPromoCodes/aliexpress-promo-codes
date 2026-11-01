@@ -44,21 +44,13 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 
 🎟 **$3 off orders 18+:** `IFPDAPWF` + `IFPIJJXZ` **(17%)**
-
 🎟 **$8 off orders 45+:** `IFPUJYJQ` + `IFPZC8QZ` **(18%)**
-
 🎟 **$13 off orders 79+:** `IFPIWQBA` + `IFPB9GEY` **(16%)**
-
 🎟 **$24 off orders 139+:** `IFPLTR3B` + `IFPTZNDK` **(17%)**
-
 🎟 **$40 off orders 229+:** `IFPMJPWK` + `IFPS0C1I` **(17%)**
-
 🎟 **$60 off orders 349+:** `IFPZBWVW` + `IFPYOYNU` **(17%)**
-
 🎟 **$80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
-
 🎟 **$100 off orders 500+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
 🎟 **$120 off orders 600+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
