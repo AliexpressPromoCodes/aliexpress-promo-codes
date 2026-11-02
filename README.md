@@ -4,7 +4,7 @@ AliExpress promo codes for November 2026 - 11.11 Sale discounts by country and c
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
-**Last updated:** November 1, 2026
+**Last updated:** November 2, 2026
 
 ## AliExpress Promo Codes by Country and Currency
 
