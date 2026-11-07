@@ -4,7 +4,7 @@ AliExpress promo codes for November 2026 - 11.11 Sale discounts by country and c
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
-**Last updated:** November 5, 2026
+**Last updated:** November 7, 2026
 
 ## AliExpress Promo Codes by Country and Currency
 
@@ -57,9 +57,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **$80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **$100 off orders 500+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **$120 off orders 600+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -85,9 +82,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **€80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **€100 off orders 500+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **€120 off orders 600+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -113,9 +107,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **$80 off orders 399+:** `IFPHSL0U` + `IFPT4PMR` **(20%)**
 
-🎟 **$100 off orders 500+:** `IFPHLM6M` + `IFPYOTPO` **(20%)**
-
-🎟 **$130 off orders 650+:** `IFPXZDN6` + `IFPXX9C6` **(20%)**
 
 ---
 
@@ -158,10 +149,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **C$90 off orders 560+:** `IFP6QDGG` + `IFPIMHP5` **(16%)**
 
-🎟 **C$140 off orders 700+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **C$226 off orders 1,130+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
-
 ---
 
 <a name="uk"></a>
@@ -186,9 +173,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **£65 off orders 390+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **£96 off orders 480+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **£110 off orders 550+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -214,9 +198,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **SAR300 off orders 1,760+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **SAR375 off orders 1,880+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **SAR450 off orders 2,250+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -242,9 +223,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **CHF 66.99 off orders 392.74+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **CHF 83.74 off orders 418.70+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **CHF 100.49 off orders 502.44+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -270,9 +248,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **12,837円 off orders 75,256+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **16,046円 off orders 80,230+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **19,255円 off orders 96,276+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -298,9 +273,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **310 zł off orders 1,850+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **520 zł off orders 2,600+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **560 zł off orders 2,800+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -326,9 +298,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **AU$110 off orders 610+:** `IFP6QDGG` + `IFPIMHP5` **(18%)**
 
-🎟 **AU$160 off orders 800+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **AU$190 off orders 945+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -354,9 +323,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **R$400 off orders 2,500+:** `IFP6QDGG` + `IFPIMHP5` **(16%)**
 
-🎟 **R$740 off orders 3,700+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **R$800 off orders 4,000+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -382,9 +348,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **M$1,100 off orders 6,500+:** `IFP6QDGG` + `IFPIMHP5` **(17%)**
 
-🎟 **M$1,800 off orders 9,000+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **M$2,200 off orders 11,000+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -410,9 +373,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates.
 
 🎟 **CLP$69,425 off orders 433,906+:** `IFP6QDGG` + `IFPIMHP5` **(16%)**
 
-🎟 **CLP$128,436 off orders 642,181+:** `IFPSR2BU` + `IFPGPRTA` **(20%)**
-
-🎟 **CLP$138,850 off orders 694,250+:** `IFPAWG0P` + `IFPXXQVC` **(20%)**
 
 ---
 
@@ -459,4 +419,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress promo codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday]([https://image.noelshack.com/fichiers/2026/44/5/1793367959-aliexpress-promo-codes-november-2026-11-11-black-friday-cyber-monday-sale.jpg](https://image.noelshack.com/fichiers/2026/45/4/1793851091-aliexpress-promo-codes-november-05-2026-update-11-11-black-friday-cyber-monday-sale.jpg))
+![AliExpress promo codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/45/6/1794043542-aliexpress-promo-codes-november-07-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
