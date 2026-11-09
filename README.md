@@ -4,7 +4,7 @@ AliExpress promo codes for November 2026 - 11.11 Sale discounts by country and c
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for coupon updates
 
-**Last updated:** November 7, 2026
+**Last updated:** November 9, 2026
 
 ## AliExpress Promo Codes by Country and Currency
 
@@ -419,4 +419,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress promo codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/45/6/1794043542-aliexpress-promo-codes-november-07-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
+![AliExpress promo codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/1/1794209406-aliexpress-promo-codes-november-09-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
