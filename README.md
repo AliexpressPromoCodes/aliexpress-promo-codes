@@ -394,4 +394,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/3/1794354767-aliexpress-promo-codes-november-11-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
+![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/3/1794354766-aliexpress-promo-codes-november-11-2026-update-11-11-black-friday-cyber-monday-sale-codes.jpg)
