@@ -7,7 +7,7 @@ The **AliExpress 11.11 Sale runs from November 1 to November 18, 2026**, followe
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and coupon restocks.
 
-**Last updated:** November 11, 2026
+**Last updated:** November 13, 2026
 
 **11.11 Update:** New USA promo codes have been added, along with high-value Global coupons offering up to **$120 off**. The $100 and $120 Global tiers, including their local-currency equivalents, are scheduled for **November 11-12 only**.
 
