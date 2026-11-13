@@ -11,7 +11,7 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 
 **11.11 Update:** New USA promo codes have been added, along with high-value Global coupons offering up to **$120 off**. The $100 and $120 Global tiers, including their local-currency equivalents, are scheduled for **November 11-12 only**.
 
-![AliExpress Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/3/1794354767-aliexpress-promo-codes-november-11-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
+![AliExpress Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-promo-codes-november-13-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
 
 ---
 
@@ -57,8 +57,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **$40 off orders 229+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **$60 off orders 349+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **$80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **$100 off orders 500+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **$120 off orders 600+:** `IFPWZ8SY` + `IFPHGI8P`
 
 **Limited high-value codes:** The $100 and $120 tiers are scheduled for November 11-12 only.
 
@@ -102,7 +100,7 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **$5 off orders 20+:** `IFPWIE4H` + `IFPG29ZZ`  
 🎟 **$12 off orders 80+:** `IFPC444G` + `IFPW8D4V`
 
-![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/3/1794354766-aliexpress-usa-promo-codes-november-11-2026-update-11-11-sale.png)
+![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-usa-promo-codes-november-13-2026-update-11-11-sale.png)
 
 ---
 
@@ -120,8 +118,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **€40 off orders 229+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **€60 off orders 349+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **€80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **€100 off orders 500+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **€120 off orders 600+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -139,8 +135,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **грн.1,586 off orders 9,769+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **грн.2,254 off orders 13,360+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **грн.3,339 off orders 20,874+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **грн.6,178 off orders 30,894+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **грн.6,679 off orders 33,398+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -158,8 +152,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **C$50 off orders 300+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **C$76 off orders 445+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **C$90 off orders 560+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **C$140 off orders 700+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **C$226 off orders 1,130+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -177,8 +169,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **£35 off orders 200+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **£53 off orders 300+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **£65 off orders 390+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **£96 off orders 480+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **£110 off orders 550+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -196,8 +186,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **AU$50 off orders 290+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **AU$80 off orders 450+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **AU$110 off orders 610+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **AU$160 off orders 800+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **AU$190 off orders 945+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -215,8 +203,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **SAR150 off orders 860+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **SAR225 off orders 1,300+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **SAR300 off orders 1,760+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **SAR375 off orders 1,880+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **SAR450 off orders 2,250+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -234,8 +220,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **CHF 26.43 off orders 162.75+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **CHF 37.56 off orders 222.56+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **CHF 55.64 off orders 347.75+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **CHF 102.93 off orders 514.67+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **CHF 111.28 off orders 556.40+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -253,8 +237,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **5,094円 off orders 31,368+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **7,239円 off orders 42,897+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **10,724円 off orders 67,026+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **19,840円 off orders 99,198+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **21,448円 off orders 107,242+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -272,8 +254,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **160 zł off orders 950+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **225 zł off orders 1,350+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **310 zł off orders 1,850+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **520 zł off orders 2,600+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **560 zł off orders 2,800+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -291,8 +271,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **R$190 off orders 1,170+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **R$270 off orders 1,600+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **R$400 off orders 2,500+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **R$740 off orders 3,700+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **R$800 off orders 4,000+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -310,8 +288,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **M$600 off orders 3,500+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **M$670 off orders 4,000+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **M$1,100 off orders 6,500+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **M$1,800 off orders 9,000+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **M$2,200 off orders 11,000+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -329,8 +305,6 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **CLP$31,615 off orders 194,681+:** `IFPMJPWK` + `IFPS0C1I`  
 🎟 **CLP$44,926 off orders 266,230+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **CLP$66,558 off orders 415,985+:** `IFP6QDGG` + `IFPIMHP5`  
-🎟 **CLP$123,131 off orders 615,657+:** `IFPXYSMC` + `IFPLOIQH`  
-🎟 **CLP$133,115 off orders 665,576+:** `IFPWZ8SY` + `IFPHGI8P`
 
 ---
 
@@ -394,4 +368,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/3/1794354766-aliexpress-promo-codes-november-11-2026-update-11-11-black-friday-cyber-monday-sale-codes.jpg)
+![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-promo-codes-november-13-2026-update-11-11-black-friday-cyber-monday-sale-codes.png)
