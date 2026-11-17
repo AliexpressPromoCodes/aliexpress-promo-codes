@@ -53,17 +53,17 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 **Region:** United States of America  
 **Currency:** USD
 
-🎟 **$3 off orders 15+:** `IFPCSPB4` + `IFPYRTTX`  
-🎟 **$8 off orders 40+:** `IFPAYFEU` + `IFPEETQO`  
-🎟 **$20 off orders 99+:** `IFPX0TYC` + `IFPL0NMY`  
-🎟 **$26 off orders 139+:** `IFPFQ0JX` + `IFPRXZ8O`  
-🎟 **$36 off orders 189+:** `IFP0QQTQ` + `IFPWVY8R`  
-🎟 **$50 off orders 259+:** `IFPF9TDK` + `IFPHZGIE`  
-🎟 **$65 off orders 339+:** `IFPMXXNF` + `IFPOGTMI`  
-🎟 **$80 off orders 419+:** `IFPFKIIZ` + `IFPBMXXW`  
-🎟 **$110 off orders 579+:** `IFPNA519` + `IFPEIPRY`  
-🎟 **$150 off orders 799+:** `IFPJUX31` + `IFPC52OJ`  
-🎟 **$180 off orders 999+:** `IFPTBVDV` + `IFPIHJ6E`
+🎟 **$3 off orders 15+:** `IFPAHEBK` + `IFPYRTTX`  
+🎟 **$8 off orders 40+:** `IFPNCJJG` + `IFPEETQO`  
+🎟 **$20 off orders 99+:** `IFPM76GO` + `IFPL0NMY`  
+🎟 **$26 off orders 139+:** `IFP64BX2` + `IFPRXZ8O`  
+🎟 **$36 off orders 189+:** `IFPK9RFB` + `IFPWVY8R`  
+🎟 **$50 off orders 259+:** `IFPXKH4D` + `IFPHZGIE`  
+🎟 **$65 off orders 339+:** `IFPGB551` + `IFPOGTMI`  
+🎟 **$80 off orders 419+:** `IFP8RDBS` + `IFPBMXXW`  
+🎟 **$110 off orders 579+:** `IFP3MJL3` + `IFPEIPRY`  
+🎟 **$150 off orders 799+:** `IFPWNP9V` + `IFPC52OJ`  
+🎟 **$180 off orders 999+:** `IFP7MGZX` + `IFPIHJ6E`
 
 <a name="black-friday-usa-new-users"></a>
 ### USA New User Promo Codes (USD)
