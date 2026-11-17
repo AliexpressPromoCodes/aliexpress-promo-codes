@@ -22,7 +22,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 [Global Black Friday](#black-friday-global) | [Global New Users](#black-friday-global-new-users) | [USA Black Friday](#black-friday-usa) | [USA New Users](#black-friday-usa-new-users) | [11.11 Codes](#aliexpress-1111-promo-codes)
 
 <a name="black-friday-global"></a>
-### Global Black Friday Promo Codes (USD)
+### AliExpress Global Black Friday Promo Codes (USD)
 
 **Sale dates:** November 19 to December 4, 2026  
 **Region:** Global  
@@ -37,7 +37,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$75 off orders 479+:** `IFP1QO6K` + `IFPOGAF0`
 
 <a name="black-friday-global-new-users"></a>
-### Global Black Friday New User Promo Codes (USD)
+### AliExpress Global Black Friday New User Codes (USD)
 
 **Sale dates:** November 19 to December 4, 2026  
 **Region:** Global  
@@ -47,7 +47,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$6 off orders 18+:** `IFPGXPMU` + `IFPCSDTR`
 
 <a name="black-friday-usa"></a>
-### USA Black Friday Promo Codes (USD)
+### AliExpress USA Black Friday Promo Codes (USD)
 
 **Sale dates:** November 19 to December 4, 2026  
 **Region:** United States of America  
@@ -66,7 +66,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$180 off orders 999+:** `IFP7MGZX` + `IFPIHJ6E`
 
 <a name="black-friday-usa-new-users"></a>
-### USA New User Promo Codes (USD)
+### AliExpress USA New User Promo Codes (USD)
 
 **Valid until:** December 31, 2026  
 **Region:** United States of America  
