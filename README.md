@@ -1,13 +1,86 @@
+# AliExpress Promo Codes November 2026 - Black Friday, Cyber Monday & 11.11 Sale
 
-# AliExpress Promo Codes November 2026 - 11.11 Sale, Black Friday & Cyber Monday
+![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/2/1794911073-aliexpress-promo-codes-november-19-2026-update-black-friday-sale.jpg)
 
 Find the latest **AliExpress promo codes for November 2026**, including 11.11 Double Eleven Sale discounts, Global and USA coupons, and country-specific codes in multiple currencies.
 
-The **AliExpress 11.11 Sale runs from November 1 to November 18, 2026**, followed by **Black Friday and Cyber Monday promotions from November 19 to December 3, 2026**.
+The **AliExpress 11.11 Sale runs from November 1 to November 18, 2026**, followed by **Black Friday and Cyber Monday promotions from November 19 to December 4, 2026**.
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and coupon restocks.
 
 **Last updated:** November 17, 2026
+
+---
+
+<a name="black-friday"></a>
+## AliExpress Black Friday & Cyber Monday Promo Codes - November 2026
+
+Sale runs **November 19 to December 4, 2026**. Black Friday is **November 27** and Cyber Monday is **November 30**. The [11.11 codes](#aliexpress-1111-promo-codes) are still active through **November 18**.
+
+Each offer has two code options. Use one at a time at checkout. All amounts are in USD.
+
+[Global Black Friday](#black-friday-global) | [Global New Users](#black-friday-global-new-users) | [USA Black Friday](#black-friday-usa) | [USA New Users](#black-friday-usa-new-users) | [11.11 Codes](#aliexpress-1111-promo-codes)
+
+<a name="black-friday-global"></a>
+### Global Black Friday Promo Codes (USD)
+
+**Sale dates:** November 19 to December 4, 2026  
+**Region:** Global  
+**Currency:** USD
+
+🎟 **$3 off orders 18+:** `IFPGXPMU` + `IFPCSDTR`  
+🎟 **$6 off orders 40+:** `IFPNYOKE` + `IFPIVF3U`  
+🎟 **$15 off orders 85+:** `IFPK0CBO` + `IFP7W4GW`  
+🎟 **$24 off orders 149+:** `IFPRQLY9` + `IFPLQKBV`  
+🎟 **$37 off orders 239+:** `IFPXOXZM` + `IFPSNK4R`  
+🎟 **$54 off orders 349+:** `IFPCGRSC` + `IFPSTONJ`  
+🎟 **$75 off orders 479+:** `IFP1QO6K` + `IFPOGAF0`
+
+<a name="black-friday-global-new-users"></a>
+### Global Black Friday New User Promo Codes (USD)
+
+**Sale dates:** November 19 to December 4, 2026  
+**Region:** Global  
+**Currency:** USD  
+**Eligibility:** New AliExpress customers placing their first order
+
+🎟 **$6 off orders 18+:** `IFPGXPMU` + `IFPCSDTR`
+
+<a name="black-friday-usa"></a>
+### USA Black Friday Promo Codes (USD)
+
+**Sale dates:** November 19 to December 4, 2026  
+**Region:** United States of America  
+**Currency:** USD
+
+🎟 **$3 off orders 15+:** `IFPCSPB4` + `IFPYRTTX`  
+🎟 **$8 off orders 40+:** `IFPAYFEU` + `IFPEETQO`  
+🎟 **$20 off orders 99+:** `IFPX0TYC` + `IFPL0NMY`  
+🎟 **$26 off orders 139+:** `IFPFQ0JX` + `IFPRXZ8O`  
+🎟 **$36 off orders 189+:** `IFP0QQTQ` + `IFPWVY8R`  
+🎟 **$50 off orders 259+:** `IFPF9TDK` + `IFPHZGIE`  
+🎟 **$65 off orders 339+:** `IFPMXXNF` + `IFPOGTMI`  
+🎟 **$80 off orders 419+:** `IFPFKIIZ` + `IFPBMXXW`  
+🎟 **$110 off orders 579+:** `IFPNA519` + `IFPEIPRY`  
+🎟 **$150 off orders 799+:** `IFPJUX31` + `IFPC52OJ`  
+🎟 **$180 off orders 999+:** `IFPTBVDV` + `IFPIHJ6E`
+
+<a name="black-friday-usa-new-users"></a>
+### USA New User Promo Codes (USD)
+
+**Valid until:** December 31, 2026  
+**Region:** United States of America  
+**Currency:** USD  
+**Eligibility:** New AliExpress customers placing their first order
+
+🎟 **$3 off orders 10+:** `IFPNTMZD` + `IFP85ZLI`  
+🎟 **$5 off orders 20+:** `IFPAH632` + `IFP4GYG3`  
+🎟 **$12 off orders 80+:** `IFP6DHJU` + `IFP4CNWM`
+
+---
+
+<a name="aliexpress-1111-promo-codes"></a>
+## AliExpress 11.11 Promo Codes
 
 **11.11 Update:** New USA promo codes have been added, along with high-value Global coupons offering up to **$120 off**. The $100 and $120 Global tiers, including their local-currency equivalents, are scheduled for **November 11-12 only**.
 
@@ -332,7 +405,7 @@ No. This is an independent reference based on the November 2026 coupon list prov
 
 ### When does the AliExpress 11.11 Sale start and end?
 
-The AliExpress Double Eleven Sale runs from **November 1 to November 18, 2026**. Black Friday and Cyber Monday promotions follow from **November 19 to December 3, 2026**.
+The AliExpress Double Eleven Sale runs from **November 1 to November 18, 2026**. Black Friday and Cyber Monday promotions follow from **November 19 to December 4, 2026**.
 
 ### Which countries are covered by this AliExpress promo code guide?
 
