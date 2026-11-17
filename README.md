@@ -1,6 +1,6 @@
 # AliExpress Promo Codes November 2026 - Black Friday, Cyber Monday & 11.11 Sale
 
-![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/2/1794911073-aliexpress-promo-codes-november-19-2026-update-black-friday-sale.jpg)
+![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/2/1794914732-aliexpress-promo-codes-november-19-2026-update-black-friday-sale.jpg)
 
 Find the latest **AliExpress promo codes for November 2026**, including 11.11 Double Eleven Sale discounts, Global and USA coupons, and country-specific codes in multiple currencies.
 
