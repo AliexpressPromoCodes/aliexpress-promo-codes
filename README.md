@@ -7,11 +7,11 @@ The **AliExpress 11.11 Sale runs from November 1 to November 18, 2026**, followe
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and coupon restocks.
 
-**Last updated:** November 16, 2026
+**Last updated:** November 17, 2026
 
 **11.11 Update:** New USA promo codes have been added, along with high-value Global coupons offering up to **$120 off**. The $100 and $120 Global tiers, including their local-currency equivalents, are scheduled for **November 11-12 only**.
 
-![AliExpress Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-promo-codes-november-13-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
+![AliExpress Promo Codes November 17, 2026](https://image.noelshack.com/fichiers/2026/47/2/1794896945-aliexpress-promo-codes-november-17-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
 
 ---
 
@@ -100,7 +100,7 @@ Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code u
 🎟 **$5 off orders 20+:** `IFPWIE4H` + `IFPG29ZZ`  
 🎟 **$12 off orders 80+:** `IFPC444G` + `IFPW8D4V`
 
-![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-usa-promo-codes-november-13-2026-update-11-11-sale.png)
+![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/47/2/1794896946-aliexpress-usa-promo-codes-november-17-2026-update-11-11-sale.png)
 
 ---
 
@@ -368,4 +368,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/46/5/1794555451-aliexpress-promo-codes-november-13-2026-update-11-11-black-friday-cyber-monday-sale-codes.png)
+![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/47/2/1794896945-aliexpress-promo-codes-november-17-2026-update-11-11-black-friday-cyber-monday-sale-codes.png)
