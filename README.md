@@ -84,7 +84,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 
 **11.11 Update:** New USA promo codes have been added, along with high-value Global coupons offering up to **$120 off**. The $100 and $120 Global tiers, including their local-currency equivalents, are scheduled for **November 11-12 only**.
 
-![AliExpress Promo Codes November 17, 2026](https://image.noelshack.com/fichiers/2026/47/2/1794896945-aliexpress-promo-codes-november-17-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
+![AliExpress Promo Codes November 17, 2026](https://image.noelshack.com/fichiers/2026/47/3/1794982338-aliexpress-promo-codes-november-18-2026-update-11-11-black-friday-cyber-monday-sale.jpg)
 
 ---
 
@@ -103,7 +103,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="global-new-users"></a>
 ## AliExpress Global New User Promo Codes (USD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)
 **Region:** Global - All Countries  
 **Currency:** USD  
 **Eligibility:** New AliExpress customers placing their first order
@@ -115,7 +115,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="global"></a>
 ## AliExpress Global 11.11 Promo Codes (USD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)
 **Region:** Global  
 **Middle East:** United Arab Emirates, Kuwait, Qatar, Bahrain, Oman  
 **Latin America & Caribbean:** Peru, Colombia, Costa Rica, Argentina, El Salvador, Bolivia, Puerto Rico, Martinique  
@@ -131,8 +131,6 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$60 off orders 349+:** `IFPZBWVW` + `IFPYOYNU`  
 🎟 **$80 off orders 469+:** `IFP6QDGG` + `IFPIMHP5`  
 
-**Limited high-value codes:** The $100 and $120 tiers are scheduled for November 11-12 only.
-
 **Currency conversion:** Global codes may auto-convert to supported local currencies. Check the applicable discount and order threshold at checkout.
 
 ---
@@ -140,7 +138,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="usa"></a>
 ## AliExpress USA Promo Codes (USD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** United States of America  
 **Currency:** USD
 
@@ -150,13 +148,9 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$30 off orders 150+:** `IFPP9R07` + `IFPVJDWP`  
 🎟 **$40 off orders 199+:** `IFP8PVFM` + `IFPHJCIM`  
 🎟 **$50 off orders 279+:** `IFPVJGE7` + `IFPOCA2F`  
-🎟 **$60 off orders 299+:** `IFPI9PT2` + `IFPRBTDQ`  
 🎟 **$65 off orders 359+:** `IFPQXZNH` + `IFP2BGPO`  
-🎟 **$80 off orders 399+:** `IFPHSL0U` + `IFPT4PMR`  
 🎟 **$85 off orders 469+:** `IFPJRSOO` + `IFPNAWWQ`  
-🎟 **$100 off orders 500+:** `IFPHLM6M` + `IFPYOTPO`  
 🎟 **$100 off orders 549+:** `IFP1BEBS` + `IFPCY3Z5`  
-🎟 **$130 off orders 650+:** `IFPXZDN6` + `IFPXX9C6`  
 🎟 **$130 off orders 700+:** `IFPMJYOY` + `IFPS1LEC`
 
 ---
@@ -164,7 +158,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="usa-new-users"></a>
 ## AliExpress USA New User Promo Codes (USD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** United States of America  
 **Currency:** USD  
 **Eligibility:** New AliExpress customers placing their first order
@@ -173,14 +167,14 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 🎟 **$5 off orders 20+:** `IFPWIE4H` + `IFPG29ZZ`  
 🎟 **$12 off orders 80+:** `IFPC444G` + `IFPW8D4V`
 
-![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/47/2/1794896946-aliexpress-usa-promo-codes-november-17-2026-update-11-11-sale.png)
+![AliExpress USA Promo Codes November 11, 2026](https://image.noelshack.com/fichiers/2026/47/3/1794981507-aliexpress-usa-promo-codes-november-18-2026-update-11-11-sale.png)
 
 ---
 
 <a name="europe"></a>
 ## AliExpress Europe Promo Codes (EUR)
 
-**Sale dates:** November 10-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Europe - France, Germany, Ukraine, Spain, Netherlands, Lithuania, Belgium, Italy, Ireland, Greece, Norway, Bulgaria, Slovenia, Finland, Latvia, Croatia, Romania, Portugal, Hungary, Austria, Denmark, Estonia, Sweden, Bosnia and Herzegovina, Cyprus, Czechia, Albania, Luxembourg, Slovakia, Malta, Iceland  
 **Currency:** EUR
 
@@ -197,7 +191,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="ukraine"></a>
 ## AliExpress Ukraine Promo Codes (UAH)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Ukraine  
 **Currency:** UAH
 
@@ -214,7 +208,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="canada"></a>
 ## AliExpress Canada Promo Codes (CAD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)  
 **Region:** Canada  
 **Currency:** CAD
 
@@ -231,7 +225,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="uk"></a>
 ## AliExpress UK Promo Codes (GBP)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** United Kingdom  
 **Currency:** GBP
 
@@ -248,7 +242,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="australia"></a>
 ## AliExpress Australia Promo Codes (AUD)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)  
 **Region:** Australia  
 **Currency:** AUD
 
@@ -265,7 +259,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="saudi-arabia"></a>
 ## AliExpress Saudi Arabia Promo Codes (SAR)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Saudi Arabia  
 **Currency:** SAR
 
@@ -282,7 +276,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="switzerland"></a>
 ## AliExpress Switzerland Promo Codes (CHF)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)  
 **Region:** Switzerland  
 **Currency:** CHF
 
@@ -299,7 +293,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="japan"></a>
 ## AliExpress Japan Promo Codes (JPY)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)  
 **Region:** Japan  
 **Currency:** JPY
 
@@ -316,7 +310,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="poland"></a>
 ## AliExpress Poland Promo Codes (PLN)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Poland  
 **Currency:** PLN
 
@@ -333,7 +327,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="brazil"></a>
 ## AliExpress Brazil Promo Codes (BRL)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day)  
 **Region:** Brazil  
 **Currency:** BRL
 
@@ -350,7 +344,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="mexico"></a>
 ## AliExpress Mexico Promo Codes (MXN)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Mexico  
 **Currency:** MXN
 
@@ -367,7 +361,7 @@ Each offer has two code options. Use one at a time at checkout. All amounts are 
 <a name="chile"></a>
 ## AliExpress Chile Promo Codes (CLP)
 
-**Sale dates:** November 11-18, 2026  
+**Sale dates:** November 18 to November 19 (last day) 
 **Region:** Chile  
 **Currency:** CLP
 
@@ -441,4 +435,4 @@ No. The two codes at each tier are alternatives. **Collect both - use one at a t
 
 ---
 
-![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/47/2/1794896945-aliexpress-promo-codes-november-17-2026-update-11-11-black-friday-cyber-monday-sale-codes.png)
+![AliExpress Promo Codes November 2026 - 11.11 Double Eleven, Black Friday and Cyber Monday](https://image.noelshack.com/fichiers/2026/47/3/1794981507-aliexpress-promo-codes-november-18-2026-update-11-11-sale-codes-last-day.png)
