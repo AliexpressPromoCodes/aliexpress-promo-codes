@@ -7,7 +7,7 @@ permalink: /
 
 # AliExpress Promo Codes November 2026 - Black Friday
 
-**Last updated:** November 19, 2026
+**Last updated:** November 20, 2026
 
 Find **AliExpress coupon codes** for Black Friday and Cyber Monday by shipping country and currency. Compare local-currency minimum orders and find separate first-order offers for eligible new shoppers.
 
