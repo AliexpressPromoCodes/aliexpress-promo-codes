@@ -22,9 +22,9 @@ The sale runs from **November 19 to December 4, 2026**. Black Friday is **Novemb
 Each offer has **two alternative codes**. Collect both and use **one at a time** at checkout. Pick the section for your shipping country and currency to find the right minimum order.
 
 [Global](#black-friday-global) | [Global New Users](#black-friday-global-new-users) | [United States](#black-friday-usa) | [USA New Users](#black-friday-usa-new-users)  
-[Europe](#black-friday-europe) | [Ukraine](#black-friday-ukraine) | [Canada](#black-friday-canada) | [United Kingdom](#black-friday-uk) | [Australia](#black-friday-australia)  
-[Saudi Arabia](#black-friday-saudi-arabia) | [Switzerland](#black-friday-switzerland) | [Japan](#black-friday-japan) | [Poland](#black-friday-poland)  
-[Brazil](#black-friday-brazil) | [Mexico](#black-friday-mexico) | [Chile](#black-friday-chile)
+[Europe](#black-friday-europe) | [Ukraine](#black-friday-ukraine) | [Canada](#black-friday-canada) | [United Kingdom](#black-friday-uk)  
+[Australia](#black-friday-australia) | [Saudi Arabia](#black-friday-saudi-arabia) | [Switzerland](#black-friday-switzerland) | [Japan](#black-friday-japan)  
+[Poland](#black-friday-poland) | [Brazil](#black-friday-brazil) | [Mexico](#black-friday-mexico) | [Chile](#black-friday-chile)
 
 [How to use the codes](#how-do-i-use-aliexpress-black-friday-promo-codes) | [Black Friday FAQ](#black-friday-faq) | [Biggest discounts by country](#biggest-black-friday-discounts) | [11.11 Archive](november-2026/)
 
@@ -61,7 +61,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 **Currency conversion:** Global codes may convert to supported local currencies. Check the applicable discount and minimum order at checkout.
 
-![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/3/1795008012-global-aliexpress-black-friday-promo-codes.png)
+![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/3/1795008011-usa-aliexpress-black-friday-promo-codes.png)
 
 ---
 
@@ -98,7 +98,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 🎟 **$5 off orders 20+:** `IFPAH632` + `IFP4GYG3`  
 🎟 **$12 off orders 80+:** `IFP6DHJU` + `IFP4CNWM`
 
-![AliExpress USA Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/3/1795008011-usa-aliexpress-black-friday-promo-codes.png)
+![AliExpress USA Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/47/3/1795008012-global-aliexpress-black-friday-promo-codes.png)
 
 ---
 
