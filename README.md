@@ -455,6 +455,6 @@ Yes. The Global and regional new-user offers apply to eligible first orders duri
 
 The 11.11 sale ended on **November 18, 2026**. See the [November 2026 AliExpress 11.11 coupon code archive](november-2026/) for the earlier lists. The Black Friday and Cyber Monday offers are above.
 
-Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and check the [coupon megathread]
+Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and check the [coupon megathread](https://www.reddit.com/r/AXCoupons/comments/1pdyyno/aliexpress_new_promo_codes_coupons_megathread/) for more country-specific codes.
 
-![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/1/1795426199-global-aliexpress-black-friday-promo-codes.png)(https://www.reddit.com/r/AXCoupons/comments/1pdyyno/aliexpress_new_promo_codes_coupons_megathread/) for more country-specific codes.
+![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/1/1795426199-global-aliexpress-black-friday-promo-codes.png)
