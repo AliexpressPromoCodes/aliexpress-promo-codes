@@ -7,7 +7,7 @@ permalink: /
 
 # AliExpress Promo Codes November 2026 - Black Friday
 
-**Last updated:** November 23, 2026
+**Last updated:** November 25, 2026
 
 Find **AliExpress coupon codes** for Black Friday and Cyber Monday by shipping country and currency. Compare local-currency minimum orders and find separate first-order offers for eligible new shoppers.
 
@@ -28,7 +28,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 [How to use the codes](#how-do-i-use-aliexpress-black-friday-promo-codes) | [Black Friday FAQ](#black-friday-faq) | [Biggest discounts by country](#biggest-black-friday-discounts) | [11.11 Archive](november-2026/)
 
-![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/1/1795426199-aliexpress-promo-codes-november-23-2026-update-black-friday-sale.jpg)
+![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/3/1795577236-aliexpress-promo-codes-november-25-2026-update-black-friday-sale.jpg)
 
 ---
 
@@ -36,28 +36,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Global Black Friday Promo Codes
 
-**Sale dates:** November 23 to December 4, 2026  
+**Sale dates:** November 25 to December 4, 2026  
 **Region:** Global - United Arab Emirates, Kuwait, Qatar, Bahrain, Oman, Peru, Colombia, Costa Rica, Argentina, El Salvador, Bolivia, Puerto Rico, Martinique, Malaysia, New Zealand, Sri Lanka, Vietnam, Hong Kong, Philippines, Ghana, Kenya  
 **Currency:** USD
 
-🎟 **$3 off orders 18+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **$6 off orders 40+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **$15 off orders 85+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **$24 off orders 149+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **$37 off orders 239+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **$54 off orders 349+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **$75 off orders 479+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-global-new-users"></a>
 
-### AliExpress Global Black Friday New User Codes
+#### New User Promo Codes - First Order
 
-**Sale dates:** November 21 to December 4, 2026 
-**Region:** Global - United Arab Emirates, Kuwait, Qatar, Bahrain, Oman, Peru, Colombia, Costa Rica, Argentina, El Salvador, Bolivia, Puerto Rico, Martinique, Malaysia, New Zealand, Sri Lanka, Vietnam, Hong Kong, Philippines, Ghana, Kenya  
-**Currency:** USD  
-**Eligibility:** New AliExpress customers placing their first order
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **$6 off orders 18+** | `IFPGXPMU`<br>`IFPCSDTR` |
 
-🎟 **$6 off orders 18+:** `IFPGXPMU` + `IFPCSDTR`
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **$3 off orders 18+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **$6 off orders 40+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **$15 off orders 85+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **$24 off orders 149+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **$37 off orders 239+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **$54 off orders 349+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **$75 off orders 479+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 **Currency conversion:** Global codes may convert to supported local currencies. Check the applicable discount and minimum order at checkout.
 
@@ -67,36 +68,37 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress USA Black Friday Promo Codes
 
-**Sale dates:** November 23 to December 4, 2026  
+**Sale dates:** November 25 to December 4, 2026  
 **Region:** United States of America  
 **Currency:** USD
 
-🎟 **$3 off orders 15+:** `IFPAHEBK` + `IFPYRTTX`  
-🎟 **$8 off orders 40+:** `IFPNCJJG` + `IFPEETQO`  
-🎟 **$20 off orders 99+:** `IFPM76GO` + `IFPL0NMY`  
-🎟 **$26 off orders 139+:** `IFP64BX2` + `IFPRXZ8O`  
-🎟 **$36 off orders 189+:** `IFPK9RFB` + `IFPWVY8R`  
-🎟 **$50 off orders 259+:** `IFPXKH4D` + `IFPHZGIE`  
-🎟 **$65 off orders 339+:** `IFPGB551` + `IFPOGTMI`  
-🎟 **$80 off orders 419+:** `IFP8RDBS` + `IFPBMXXW`  
-🎟 **$110 off orders 579+:** `IFP3MJL3` + `IFPEIPRY`  
-🎟 **$150 off orders 799+:** `IFPWNP9V` + `IFPC52OJ`  
-🎟 **$180 off orders 999+:** `IFP7MGZX` + `IFPIHJ6E`
-
 <a name="black-friday-usa-new-users"></a>
 
-### AliExpress USA New User Promo Codes
+#### New User Promo Codes - First Order
 
 **Valid until:** December 31, 2026  
-**Region:** United States of America  
-**Currency:** USD  
-**Eligibility:** New AliExpress customers placing their first order
 
-🎟 **$3 off orders 10+:** `IFPNTMZD` + `IFP85ZLI`  
-🎟 **$5 off orders 20+:** `IFPAH632` + `IFP4GYG3`  
-🎟 **$12 off orders 80+:** `IFP6DHJU` + `IFP4CNWM`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **$3 off orders 10+** | `IFPNTMZD`<br>`IFP85ZLI` |
+| **$5 off orders 20+** | `IFPAH632`<br>`IFP4GYG3` |
+| **$12 off orders 80+** | `IFP6DHJU`<br>`IFP4CNWM` |
 
-![AliExpress USA Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/1/1795426199-usa-aliexpress-black-friday-promo-codes.png)
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **$3 off orders 15+** | `IFPAHEBK`<br>`IFPYRTTX` |
+| **$8 off orders 40+** | `IFPNCJJG`<br>`IFPEETQO` |
+| **$20 off orders 99+** | `IFPM76GO`<br>`IFPL0NMY` |
+| **$26 off orders 139+** | `IFP64BX2`<br>`IFPRXZ8O` |
+| **$36 off orders 189+** | `IFPK9RFB`<br>`IFPWVY8R` |
+| **$50 off orders 259+** | `IFPXKH4D`<br>`IFPHZGIE` |
+| **$65 off orders 339+** | `IFPGB551`<br>`IFPOGTMI` |
+| **$80 off orders 419+** | `IFP8RDBS`<br>`IFPBMXXW` |
+| **$110 off orders 579+** | `IFP3MJL3`<br>`IFPEIPRY` |
+| **$150 off orders 799+** | `IFPWNP9V`<br>`IFPC52OJ` |
+| **$180 off orders 999+** | `IFP7MGZX`<br>`IFPIHJ6E` |
 
 ---
 
@@ -104,23 +106,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Europe Black Friday Promo Codes (EUR)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Europe - France, Germany, Ukraine, Spain, Netherlands, Lithuania, Belgium, Italy, Ireland, Greece, Norway, Bulgaria, Slovenia, Finland, Latvia, Croatia, Romania, Portugal, Hungary, Austria, Denmark, Estonia, Sweden, Bosnia and Herzegovina, Cyprus, Czechia, Albania, Luxembourg, Slovakia, Malta, Iceland  
 **Currency:** EUR
 
-🎟 **€2 off orders 17+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **€6 off orders 46+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **€13 off orders 79+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **€23 off orders 149+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **€40 off orders 235+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **€60 off orders 350+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **€76 off orders 469+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-europe-new-users"></a>
 
-#### AliExpress Europe New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **€5 off orders 17+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **€5 off orders 17+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **€2 off orders 17+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **€6 off orders 46+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **€13 off orders 79+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **€23 off orders 149+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **€40 off orders 235+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **€60 off orders 350+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **€76 off orders 469+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -128,23 +136,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Ukraine Black Friday Promo Codes (UAH)
 
-**Sale dates:** November 23 to December 4, 2026 
+**Sale dates:** November 25 to December 4, 2026 
 **Region:** Ukraine  
 **Currency:** UAH
 
-🎟 **грн.149 off orders 896+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **грн.238 off orders 1,433+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **грн.557 off orders 3,264+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **грн.875 off orders 5,174+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **грн.1,512 off orders 9,313+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **грн.2,149 off orders 12,736+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **грн.3,183 off orders 19,899+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-ukraine-new-users"></a>
 
-#### AliExpress Ukraine New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **грн.299 off orders 896+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **грн.299 off orders 896+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **грн.149 off orders 896+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **грн.262 off orders 1,775+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **грн.437 off orders 2,548+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **грн.1,034 off orders 6,607+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **грн.1,591 off orders 10,586+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **грн.2,387 off orders 15,521+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **грн.3,342 off orders 21,252+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -152,23 +166,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Canada Black Friday Promo Codes (CAD)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Canada  
 **Currency:** CAD
 
-🎟 **C$4 off orders 27+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **C$10 off orders 60+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **C$14 off orders 90+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **C$30 off orders 170+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **C$50 off orders 300+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **C$76 off orders 445+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **C$90 off orders 560+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-canada-new-users"></a>
 
-#### AliExpress Canada New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **C$9 off orders 27+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **C$9 off orders 27+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **C$4 off orders 27+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **C$10 off orders 60+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **C$14 off orders 90+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **C$30 off orders 170+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **C$50 off orders 300+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **C$76 off orders 445+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **C$90 off orders 560+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -176,23 +196,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress UK Black Friday Promo Codes (GBP)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** United Kingdom  
 **Currency:** GBP
 
-🎟 **£2 off orders 14+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **£7 off orders 40+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **£10 off orders 60+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **£20 off orders 110+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **£35 off orders 200+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **£53 off orders 300+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **£65 off orders 390+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-uk-new-users"></a>
 
-#### AliExpress UK New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **£5 off orders 14+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **£5 off orders 14+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **£2 off orders 14+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **£7 off orders 40+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **£10 off orders 60+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **£20 off orders 110+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **£35 off orders 200+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **£53 off orders 300+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **£65 off orders 390+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -200,23 +226,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Australia Black Friday Promo Codes (AUD)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Australia  
 **Currency:** AUD
 
-🎟 **AU$4 off orders 28+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **AU$9 off orders 58+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **AU$18 off orders 105+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **AU$29 off orders 175+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **AU$50 off orders 290+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **AU$80 off orders 450+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **AU$110 off orders 610+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-australia-new-users"></a>
 
-#### AliExpress Australia New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **AU$9 off orders 28+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **AU$9 off orders 28+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **AU$4 off orders 28+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **AU$9 off orders 58+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **AU$18 off orders 105+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **AU$29 off orders 175+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **AU$50 off orders 290+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **AU$80 off orders 450+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **AU$110 off orders 610+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -224,23 +256,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Saudi Arabia Black Friday Promo Codes (SAR)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Saudi Arabia  
 **Currency:** SAR
 
-🎟 **SAR11 off orders 70+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **SAR30 off orders 170+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **SAR50 off orders 300+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **SAR90 off orders 520+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **SAR150 off orders 860+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **SAR225 off orders 1,300+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **SAR300 off orders 1,760+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-saudi-arabia-new-users"></a>
 
-#### AliExpress Saudi Arabia New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **SAR23 off orders 70+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **SAR23 off orders 70+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **SAR11 off orders 70+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **SAR30 off orders 170+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **SAR50 off orders 300+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **SAR90 off orders 520+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **SAR150 off orders 860+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **SAR225 off orders 1,300+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **SAR300 off orders 1,760+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -248,23 +286,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Switzerland Black Friday Promo Codes (CHF)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Switzerland  
 **Currency:** CHF
 
-🎟 **CHF 2 off orders 16+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **CHF 4 off orders 25+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **CHF 9 off orders 57+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **CHF 15 off orders 90+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **CHF 26 off orders 161+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **CHF 37 off orders 220+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **CHF 54 off orders 343+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-switzerland-new-users"></a>
 
-#### AliExpress Switzerland New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **CHF 5 off orders 16+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **CHF 5 off orders 16+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **CHF 2 off orders 16+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **CHF 4 off orders 30+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **CHF 7.38 off orders 42.91+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **CHF 17 off orders 112+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **CHF 26 off orders 179+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **CHF 40 off orders 262+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **CHF 56 off orders 359+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -272,23 +316,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Japan Black Friday Promo Codes (JPY)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Japan  
 **Currency:** JPY
 
-🎟 **488円 off orders 2,926+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **780円 off orders 4,683+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **1,821円 off orders 10,666+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **2,862円 off orders 16,910+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **4,943円 off orders 30,438+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **7,024円 off orders 41,624+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **10,406円 off orders 65,038+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-japan-new-users"></a>
 
-#### AliExpress Japan New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **975円 off orders 2,926+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **975円 off orders 2,926+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **488円 off orders 2,926+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **859円 off orders 5,801+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **1,431円 off orders 8,325+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **3,382円 off orders 21,593+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **5,203円 off orders 34,600+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **7,805円 off orders 50,730+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **10,926円 off orders 69,461+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -296,23 +346,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Poland Black Friday Promo Codes (PLN)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Poland  
 **Currency:** PLN
 
-🎟 **12 zł off orders 74+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **32 zł off orders 180+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **65 zł off orders 360+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **100 zł off orders 580+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **160 zł off orders 950+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **225 zł off orders 1,350+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **310 zł off orders 1,850+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-poland-new-users"></a>
 
-#### AliExpress Poland New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **25 zł off orders 74+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **25 zł off orders 74+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **12 zł off orders 74+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **25 zł off orders 167+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **62 zł off orders 350+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **100 zł off orders 620+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **155 zł off orders 1,000+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **225 zł off orders 1,450+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **310 zł off orders 1,990+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -320,23 +376,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Brazil Black Friday Promo Codes (BRL)
 
-**Sale dates:** November 23 to December 4, 2026 
+**Sale dates:** November 25 to December 4, 2026 
 **Region:** Brazil  
 **Currency:** BRL
 
-🎟 **R$18 off orders 114+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **R$30 off orders 180+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **R$70 off orders 410+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **R$110 off orders 650+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **R$190 off orders 1,170+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **R$270 off orders 1,600+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **R$400 off orders 2,500+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-brazil-new-users"></a>
 
-#### AliExpress Brazil New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **R$38 off orders 114+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **R$38 off orders 114+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **R$18 off orders 114+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **R$30 off orders 180+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **R$70 off orders 410+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **R$110 off orders 650+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **R$190 off orders 1,170+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **R$270 off orders 1,600+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **R$400 off orders 2,500+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -344,23 +406,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Mexico Black Friday Promo Codes (MXN)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Mexico  
 **Currency:** MXN
 
-🎟 **MX$56 off orders 339+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **MX$110 off orders 640+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **MX$240 off orders 1,500+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **MX$370 off orders 2,200+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **MX$600 off orders 3,500+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **MX$670 off orders 4,000+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **MX$1,100 off orders 6,500+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-mexico-new-users"></a>
 
-#### AliExpress Mexico New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **MX$113 off orders 339+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **MX$113 off orders 339+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **MX$56 off orders 339+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **MX$110 off orders 640+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **MX$240 off orders 1,500+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **MX$370 off orders 2,200+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **MX$600 off orders 3,500+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **MX$670 off orders 4,000+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **MX$1,100 off orders 6,500+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -368,23 +436,29 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Chile Black Friday Promo Codes (CLP)
 
-**Sale dates:** November 23 to December 4, 2026
+**Sale dates:** November 25 to December 4, 2026
 **Region:** Chile  
 **Currency:** CLP
 
-🎟 **CLP$3,067 off orders 18,401+:** `IFPGXPMU` + `IFPCSDTR`  
-🎟 **CLP$4,909 off orders 29,451+:** `IFPNYOKE` + `IFPIVF3U`  
-🎟 **CLP$11,453 off orders 67,083+:** `IFPK0CBO` + `IFP7W4GW`  
-🎟 **CLP$17,998 off orders 106,351+:** `IFPRQLY9` + `IFPLQKBV`  
-🎟 **CLP$31,087 off orders 191,432+:** `IFPXOXZM` + `IFPSNK4R`  
-🎟 **CLP$44,177 off orders 261,787+:** `IFPCGRSC` + `IFPSTONJ`  
-🎟 **CLP$65,447 off orders 409,042+:** `IFP1QO6K` + `IFPOGAF0`
-
 <a name="black-friday-chile-new-users"></a>
 
-#### AliExpress Chile New User Promo Code - First Order
+#### New User Promo Codes - First Order
 
-🎟 **CLP$6,134 off orders 18,401+:** `IFPGXPMU` + `IFPCSDTR`
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **CLP$6,134 off orders 18,401+** | `IFPGXPMU`<br>`IFPCSDTR` |
+
+#### Regular Promo Codes
+
+| Discount & minimum order | Alternative promo codes |
+| --- | --- |
+| **CLP$3,067 off orders 18,401+** | `IFPGXPMU`<br>`IFPCSDTR` |
+| **CLP$5,520 off orders 37,303+** | `IFPNYOKE`<br>`IFPIVF3U` |
+| **CLP$9,200 off orders 53,528+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **CLP$21,746 off orders 138,839+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **CLP$33,455 off orders 222,477+** | `IFPXOXZM`<br>`IFPSNK4R` |
+| **CLP$50,183 off orders 326,188+** | `IFPCGRSC`<br>`IFPSTONJ` |
+| **CLP$70,256 off orders 446,627+** | `IFP1QO6K`<br>`IFPOGAF0` |
 
 ---
 
@@ -410,14 +484,14 @@ These are the highest discounts listed on this page and their minimum eligible o
 | [Europe (EUR)](#black-friday-europe) | €76 | €469+ |
 | [UK](#black-friday-uk) | £65 | £390+ |
 | [Australia](#black-friday-australia) | AU$110 | AU$610+ |
-| [Ukraine](#black-friday-ukraine) | ₴3,183 | ₴19,899+ |
+| [Ukraine](#black-friday-ukraine) | ₴3,342 | ₴21,252+ |
 | [Saudi Arabia](#black-friday-saudi-arabia) | SAR 300 | SAR 1,760+ |
-| [Switzerland](#black-friday-switzerland) | CHF 54 | CHF 343+ |
-| [Japan](#black-friday-japan) | 10,406円 | 65,038円+ |
-| [Poland](#black-friday-poland) | 310 zł | 1,850 zł+ |
+| [Switzerland](#black-friday-switzerland) | CHF 56 | CHF 359+ |
+| [Japan](#black-friday-japan) | 10,926円 | 69,461円+ |
+| [Poland](#black-friday-poland) | 310 zł | 1,990 zł+ |
 | [Brazil](#black-friday-brazil) | R$400 | R$2,500+ |
 | [Mexico](#black-friday-mexico) | MX$1,100 | MX$6,500+ |
-| [Chile](#black-friday-chile) | CLP$65,447 | CLP$409,042+ |
+| [Chile](#black-friday-chile) | CLP$70,256 | CLP$446,627+ |
 
 Code availability and eligibility can vary. Confirm the discount at checkout before paying.
 
@@ -433,7 +507,7 @@ Choose an offer for your shipping country and order amount. Enter one code in th
 
 ### Can I use both codes on the same order?
 
-No. The two codes on each line are alternatives for the same discount. Try the first one, then try the second if it doesn’t apply.
+No. The two codes in each row are alternatives for the same discount. Try the first one, then try the second if it doesn’t apply.
 
 ### Why isn’t my AliExpress coupon code working?
 
@@ -457,4 +531,4 @@ The 11.11 sale ended on **November 18, 2026**. See the [November 2026 AliExpress
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and check the [coupon megathread](https://www.reddit.com/r/AXCoupons/comments/1pdyyno/aliexpress_new_promo_codes_coupons_megathread/) for more country-specific codes.
 
-![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/1/1795426199-global-aliexpress-black-friday-promo-codes.png)
+![AliExpress Global Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/3/1795577236-usa-global-aliexpress-november-25-2026-black-friday-promo-codes.jpg)
