@@ -1,15 +1,19 @@
 ---
 layout: default
-title: "AliExpress Promo Codes November 2026 - Black Friday"
-description: "Find AliExpress Black Friday and Cyber Monday promo codes, new USA coupons up to $180 off, and Global offers up to $140 off from November 27 to December 1, 2026."
+title: "AliExpress Black Friday Promo Codes - November 2026"
+description: "Find the latest AliExpress Black Friday and Cyber Monday coupon codes for November 2026. Save up to $180 in the USA, with offers for Europe, Canada and more."
 permalink: /
 ---
 
-# AliExpress Promo Codes November 2026 - Black Friday
+<a name="aliexpress-promo-codes-november-2026---black-friday"></a>
 
-**Last updated:** November 26, 2026
+<a name="aliexpress-black-friday-promo-codes-2026---updated-daily"></a>
 
-Find **AliExpress coupon codes** for Black Friday and Cyber Monday by shipping country and currency. Compare local-currency minimum orders and find separate first-order offers for eligible new shoppers.
+# AliExpress Black Friday Promo Codes - November 2026
+
+**Last updated:** November 27, 2026
+
+Find the latest **AliExpress promo codes for November 2026**, including Black Friday and Cyber Monday coupon codes for the USA, Europe, Canada and other eligible shipping destinations. Compare discounts and minimum orders in your local currency, and find separate first-order offers for eligible new shoppers.
 
 ---
 
@@ -24,21 +28,23 @@ The sale runs from **November 19 to December 4, 2026**. Black Friday is **Novemb
 Each offer has **two alternative codes**. Collect both and use **one at a time** at checkout. Pick the section for your shipping country and currency to find the right minimum order.
 
 [Global](#black-friday-global) | [Global New Users](#black-friday-global-new-users) | [United States](#black-friday-usa) | [USA New Users](#black-friday-usa-new-users)  
-[Europe](#black-friday-europe) | [Ukraine](#black-friday-ukraine) | [Canada](#black-friday-canada) | [United Kingdom](#black-friday-uk)  
+[Europe Coupon Codes](#black-friday-europe) | [Ukraine](#black-friday-ukraine) | [Canada Promo Codes](#black-friday-canada) | [United Kingdom](#black-friday-uk)  
 [Australia](#black-friday-australia) | [Saudi Arabia](#black-friday-saudi-arabia) | [Switzerland](#black-friday-switzerland) | [Japan](#black-friday-japan)  
 [Poland](#black-friday-poland) | [Brazil](#black-friday-brazil) | [Mexico](#black-friday-mexico) | [Chile](#black-friday-chile)
 
 [How to use the codes](#how-do-i-use-aliexpress-black-friday-promo-codes) | [Black Friday FAQ](#black-friday-faq) | [Biggest discounts by country](#biggest-black-friday-discounts) | [11.11 Archive](november-2026/)
 
-![AliExpress Black Friday and Cyber Monday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/4/1795718752-aliexpress-promo-codes-november-26-2026-update-black-friday-sale.jpg)
+![AliExpress Black Friday promo codes and Cyber Monday coupons - November 27, 2026](https://image.noelshack.com/fichiers/2026/48/5/1795787584-aliexpress-promo-codes-november-27-2026-update-black-friday.jpg)
 
 ---
 
 <a name="black-friday-global"></a>
 
-### AliExpress Global Black Friday Promo Codes
+<a name="aliexpress-global-black-friday-promo-codes"></a>
 
-**Sale dates:** November 26 to December 4, 2026  
+### AliExpress Global Black Friday Codes 2026
+
+**Sale dates:** November 27 to December 4, 2026  
 **Region:** Global - United Arab Emirates, Kuwait, Qatar, Bahrain, Oman, Peru, Colombia, Costa Rica, Argentina, El Salvador, Bolivia, Puerto Rico, Martinique, Malaysia, New Zealand, Sri Lanka, Vietnam, Hong Kong, Philippines, Ghana, Kenya  
 **Currency:** USD
 
@@ -72,7 +78,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress USA Black Friday Promo Codes
 
-**Sale dates:** November 26 to December 4, 2026  
+**Sale dates:** November 27 to December 4, 2026  
 **Region:** United States of America  
 **Currency:** USD
 
@@ -118,9 +124,11 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 <a name="black-friday-europe"></a>
 
-### AliExpress Europe Black Friday Promo Codes (EUR)
+<a name="aliexpress-europe-black-friday-promo-codes-eur"></a>
 
-**Sale dates:** November 26 to December 4, 2026
+### AliExpress Europe Coupon Codes - Black Friday 2026 (EUR)
+
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Europe - France, Germany, Ukraine, Spain, Netherlands, Lithuania, Belgium, Italy, Ireland, Greece, Norway, Bulgaria, Slovenia, Finland, Latvia, Croatia, Romania, Portugal, Hungary, Austria, Denmark, Estonia, Sweden, Bosnia and Herzegovina, Cyprus, Czechia, Albania, Luxembourg, Slovakia, Malta, Iceland  
 **Currency:** EUR
 
@@ -152,7 +160,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Ukraine Black Friday Promo Codes (UAH)
 
-**Sale dates:** November 26 to December 4, 2026 
+**Sale dates:** November 27 to December 4, 2026 
 **Region:** Ukraine  
 **Currency:** UAH
 
@@ -182,9 +190,11 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 <a name="black-friday-canada"></a>
 
-### AliExpress Canada Black Friday Promo Codes (CAD)
+<a name="aliexpress-canada-black-friday-promo-codes-cad"></a>
 
-**Sale dates:** November 26 to December 4, 2026
+### AliExpress Canada Promo Codes 2026 - Black Friday (CAD)
+
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Canada  
 **Currency:** CAD
 
@@ -216,7 +226,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress UK Black Friday Promo Codes (GBP)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** United Kingdom  
 **Currency:** GBP
 
@@ -235,7 +245,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 | **£2 off orders 14+** | `IFPGXPMU`<br>`IFPCSDTR` |
 | **£7 off orders 40+** | `IFPNYOKE`<br>`IFPIVF3U` |
 | **£10 off orders 60+** | `IFPK0CBO`<br>`IFP7W4GW` |
-| **£20 off orders 110+** | `IFPRQLY9`<br>`IFPLQKBV` |
+| **£18 off orders 109+** | `IFPRQLY9`<br>`IFPLQKBV` |
 | **£35 off orders 200+** | `IFPXOXZM`<br>`IFPSNK4R` |
 | **£53 off orders 300+** | `IFPCGRSC`<br>`IFPSTONJ` |
 | **£65 off orders 390+** | `IFP1QO6K`<br>`IFPOGAF0` |
@@ -248,7 +258,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Australia Black Friday Promo Codes (AUD)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Australia  
 **Currency:** AUD
 
@@ -266,7 +276,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 | --- | --- |
 | **AU$4 off orders 28+** | `IFPGXPMU`<br>`IFPCSDTR` |
 | **AU$9 off orders 58+** | `IFPNYOKE`<br>`IFPIVF3U` |
-| **AU$18 off orders 105+** | `IFPK0CBO`<br>`IFP7W4GW` |
+| **AU$15 off orders 105+** | `IFPK0CBO`<br>`IFP7W4GW` |
 | **AU$29 off orders 175+** | `IFPRQLY9`<br>`IFPLQKBV` |
 | **AU$50 off orders 290+** | `IFPXOXZM`<br>`IFPSNK4R` |
 | **AU$80 off orders 450+** | `IFPCGRSC`<br>`IFPSTONJ` |
@@ -280,7 +290,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Saudi Arabia Black Friday Promo Codes (SAR)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Saudi Arabia  
 **Currency:** SAR
 
@@ -312,7 +322,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Switzerland Black Friday Promo Codes (CHF)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Switzerland  
 **Currency:** CHF
 
@@ -344,7 +354,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Japan Black Friday Promo Codes (JPY)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Japan  
 **Currency:** JPY
 
@@ -376,7 +386,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Poland Black Friday Promo Codes (PLN)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Poland  
 **Currency:** PLN
 
@@ -408,7 +418,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Brazil Black Friday Promo Codes (BRL)
 
-**Sale dates:** November 26 to December 4, 2026 
+**Sale dates:** November 27 to December 4, 2026 
 **Region:** Brazil  
 **Currency:** BRL
 
@@ -440,7 +450,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Mexico Black Friday Promo Codes (MXN)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Mexico  
 **Currency:** MXN
 
@@ -472,7 +482,7 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ### AliExpress Chile Black Friday Promo Codes (CLP)
 
-**Sale dates:** November 26 to December 4, 2026
+**Sale dates:** November 27 to December 4, 2026
 **Region:** Chile  
 **Currency:** CLP
 
@@ -504,7 +514,9 @@ Each offer has **two alternative codes**. Collect both and use **one at a time**
 
 ## AliExpress Black Friday & Cyber Monday FAQ
 
-### When does the AliExpress Black Friday sale start and end?
+<a name="when-does-the-aliexpress-black-friday-sale-start-and-end"></a>
+
+### When is Black Friday on AliExpress in 2026?
 
 The sale runs from **November 19 to December 4, 2026**. Black Friday is **November 27** and Cyber Monday is **November 30**.
 
@@ -512,7 +524,7 @@ The sale runs from **November 19 to December 4, 2026**. Black Friday is **Novemb
 
 ### What is the biggest AliExpress Black Friday discount by country?
 
-Compare the highest regular discounts with the highest additional limited-time Black Friday offers. The Global and regional offers run from November 27 to December 1, 2026; the exact validity dates of the USA limited-time offers have not been specified. Choose a country or region to see all coupon codes and minimum orders.
+Compare the highest regular discounts with the highest additional limited-time Black Friday offers. The additional Global and regional limited-time offers run from November 27 to December 1, 2026; the exact validity dates of the USA limited-time offers have not been specified. Choose a country or region to see all coupon codes and minimum orders.
 
 | Country or region | Biggest regular discount | Minimum order | Highest limited-time discount | Minimum order |
 | --- | ---: | ---: | ---: | ---: |
@@ -532,6 +544,10 @@ Compare the highest regular discounts with the highest additional limited-time B
 | [Chile](#black-friday-chile) | CLP$70,256 | CLP$446,627+ | CLP$143,121 | CLP$730,940+ |
 
 Code availability and eligibility can vary. Confirm the discount at checkout before paying.
+
+### What are the AliExpress Black Friday promo codes for 2026?
+
+The [USA Black Friday codes](#black-friday-usa) range from **$3 off $15+** to **$180 off $999+**, while the regular [Global promo codes](#black-friday-global) range from **$3 off $18+** to **$75 off $479+** in eligible markets. Additional limited-time offers are listed in the regional tables.
 
 ### When are the new limited-time Black Friday promo codes available?
 
@@ -555,6 +571,14 @@ No. The two codes in each row are alternatives for the same discount. Try the fi
 
 Check that your shipping country matches the offer, your eligible items meet the minimum spend, and the code isn’t restricted to first orders. The offer may also have expired or reached its redemption limit.
 
+### Where can I find an AliExpress coupon for Europe?
+
+The [AliExpress Europe coupon codes](#black-friday-europe) include regular discounts from **€2 off €17+** to **€76 off €469+**, plus limited-time offers up to **€130 off €668+** from November 27 to December 1, 2026. An eligible first order can receive €5 off €17+. Check your shipping country and eligibility at checkout.
+
+### What is the best AliExpress promo code for Canada in 2026?
+
+The best [AliExpress Canada promo code](#black-friday-canada) depends on your order amount. Regular offers range from **C$4 off C$27+** to **C$90 off C$560+**, with additional limited-time discounts up to **C$200 off C$1,000+** from November 27 to December 1, 2026. Eligible first-time buyers can get C$9 off C$27+.
+
 ### Can I use AliExpress discount codes in my local currency?
 
 Set your shipping country and currency before checking the offer. The same Global code pairs appear across the regional sections, but discount amounts and minimum orders vary by currency. Check the final amount at checkout. Changing currency alone does not change which shipping countries are eligible.
@@ -573,4 +597,4 @@ The 11.11 sale ended on **November 18, 2026**. See the [November 2026 AliExpress
 
 Follow [r/AXCoupons](https://www.reddit.com/r/AXCoupons/) for daily promo code updates and check the [coupon megathread](https://www.reddit.com/r/AXCoupons/comments/1pdyyno/aliexpress_new_promo_codes_coupons_megathread/) for more country-specific codes.
 
-![AliExpress USA Black Friday Promo Codes November 2026](https://image.noelshack.com/fichiers/2026/48/4/1795718752-usa-aliexpress-november-26-2026-black-friday-promo-codes.png)
+![AliExpress USA and Global Black Friday promo codes - November 27, 2026](https://image.noelshack.com/fichiers/2026/48/5/1795787585-usa-global-aliexpress-november-27-2026-black-friday-promo-codes.jpg)
